@@ -1,0 +1,1 @@
+A comprehensive AI audit done for Will&Able NZ. The focus was on using solely AI to capture the essence of the business, its pain points, and making calculated decisions to help their business, technical, social and environmental needs. Ranked top 10% in class
